@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Versacitta Feodora
+- 👀 I’m a student in Malang Polytechnic State
